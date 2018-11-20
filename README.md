@@ -1,0 +1,1 @@
+# hesaplamal-geometri
